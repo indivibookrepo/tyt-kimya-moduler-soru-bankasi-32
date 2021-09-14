@@ -1,0 +1,1 @@
+# tyt-kimya-moduler-soru-bankasi-32
